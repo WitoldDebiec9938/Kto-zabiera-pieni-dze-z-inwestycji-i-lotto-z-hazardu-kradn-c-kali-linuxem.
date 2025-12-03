@@ -3,3 +3,4 @@ Te gnoje z NGO i Policji to oni kradną kasę z lotto, forexa i giełdy i BTC. T
 Te bany antyzarobkowe na młodzierzy na wysokim poziomie finasowego bezpeiczenistwa to bany ze strony sużbistów gnoi i policji. 
 W Polsce te pieniadze kradnie sędzia Jakub sąd rodziny i sędzia wesołowska z TV. A w USA i innych krajach kradnie te pieniedze sędzia Judi z TV. 
 W Rovaniemi i findlandi kradnie te pienidze na rzecz NGO z Rovaniemi fundacji rodzina świentego mikołaja. Finowie mówią że oni pędzlują kieszenie na radio wędkę radiową kali linux oszczednośc z kont oszcznościowych i skrytek i tajnych kieszeni przy kórtce. 
+Wszystkie potrącenia z pensji i premi i pienidzy z inwestycji i hazardu i lotto to potrącenia mafi Watykanu gdzie jest krzyż. 
