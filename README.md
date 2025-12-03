@@ -1,0 +1,1 @@
+# Kto-zabiera-pieni-dze-z-inwestycji-i-lotto-z-hazardu-kradn-c-kali-linuxem.
